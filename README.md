@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @raissagcnogueira
+- 🌱 I’m currently learning about data analysis.
+- 📫 How to reach me: raissagcnogueira@gmail.com
